@@ -6,7 +6,6 @@
 - 💞️ I’m looking to collaborate on ... nothing yet.
 - 📫 How to reach me : 
         ☑️ Discord : FrNomad #2821
-        ☑️ E-Mail  : Fronomad@gmail.com
 
 - Other Informations about me.
         - My nation is Republic of Korea 🇰🇷
