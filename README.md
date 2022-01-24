@@ -8,7 +8,7 @@
         ☑️ Discord : FrNomad #2821
 
 - Other Informations about me.
-        - My nation is Republic of Korea 🇰🇷
+        - My nation (nationality) is Republic of Korea 🇰🇷
 <!---
 FrNomad/FrNomad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
